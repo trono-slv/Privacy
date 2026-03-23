@@ -1,1 +1,1 @@
-https://trono-slv.github.io/Privacy/
+https://trono-slv.github.io/prova/
